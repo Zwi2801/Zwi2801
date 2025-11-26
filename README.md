@@ -19,8 +19,9 @@ Risk management
 Good communication skills written, verbal and presentation skills.
 Excellent organisational and time management skills
 
-- ⚡ Fun fact: ...
+                                   Fun Fact
 
+                                   
                                    Certificates 
 
 [Uploading AI Practitioner_ZU Certificate.pdf_page_1.pdf…]()
