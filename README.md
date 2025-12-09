@@ -26,11 +26,8 @@ Excellent organisational and time management skills
 
                                    Fun Fact
 
-                                   
-                                   Certificates 
+I love Adrenaline, I have flown a small aircraft as a copilot back in my teenage years, bungee jumped as well which I will NEVER do again!!!
 
-[Uploading AI Practitioner_ZU Certificate.pdf_page_1.pdf…]()
-
-[Uploading Generative AI Certificate- ZN.pdf_page_1.pdf…]()
+                                  
   
   
