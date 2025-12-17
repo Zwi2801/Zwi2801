@@ -3,6 +3,7 @@
                      including projects that cover storage, database and security management, and Networking👏
                      
                      
+**About me**
 
                                       Background information
 My name is Zwivhuya Ndou (Zwi for short). I am a transitioning into Tech specifically Cloud computing through the AWS restart program with a Finance, Risk Analysis and compliance background. I am a firm believer of collaboration and implementation of effective solutions that create value for stakeholders in the Accounting, Project Management and Business Administration. I am driven by purpose, passionate about technology and I strive to tackle challenging and complex industry obstacles through using risk management, business analysis and project management tools and methodologies. I have advised senior managers and stakeholders in global Financial Institutions such as Rand Merchant Bank (RMB) and a global retail institution such as Amazon in my previous roles.
